@@ -7,4 +7,8 @@ THE FUTURE OF SOFTWARE DEVELOPMENT
 
 
 
+https://github.com/user-attachments/assets/990718f4-8fd2-4eea-909f-a51fbecf9f90
+
+
+
 just download the ppt and open it on powerpoint
